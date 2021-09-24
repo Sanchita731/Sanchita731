@@ -30,7 +30,7 @@ I'm a coder, dancer .
  
  
  
-I'm a big fan of the cartoon show "Miraculous: Tales Of Ladybug And Cat Noir", that is full of miracles. My dream city is Paris.
+I'm a big fan of the cartoon show "Miraculous: Tales Of Ladybug And Cat Noir", that is full of miracles. 
 
 
 
@@ -45,7 +45,33 @@ I'm a big fan of the cartoon show "Miraculous: Tales Of Ladybug And Cat Noir", t
 
 
 
-I am  also a blink , army , one and reveluv .
+
+
+
+
+
+
+
+
+
+
+
+My dream city is Paris.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+I am  also a blink , army , once and reveluv .
 
 
 
